@@ -1,1 +1,1 @@
-# BattalHAZAR![output (1)](https://github.com/user-attachments/assets/dc0ab408-2ae1-4913-aa70-12a1b0e3c4e3)
+![output (2)](https://github.com/user-attachments/assets/3d4957c7-5365-44b1-aa1e-7fe212a1f3b4)
