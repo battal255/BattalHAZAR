@@ -1,1 +1,2 @@
 ![ZLXVRzis47_tfo3oqgS5iINRwL0K3HgdM54tsPojw2CjNM8s4gcHL59ZstSVTJ9fdyWOpajqz_lTYRm_FCeVZENQjdKrgk31CgkO5eyRoqgXeR12oT7e3VjbyCUk2gkqYVGZtkdPsQSMZ3rZt31yyke_3MZKTWzU-LcjsGhWQGTzNdbWKJULskxKY-MTroz1MjLhbuklzrvzLTP2elRgUk](https://github.com/user-attachments/assets/49332430-13ec-4c1f-8996-7ca66a6d9936)
+![UseCase](https://github.com/user-attachments/assets/2def786d-848f-4910-984c-2f9e8dcafc7d)
